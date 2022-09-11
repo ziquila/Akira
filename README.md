@@ -17,7 +17,6 @@ https://www.notion.so/greenpillcn/Community-SBT-Basket-and-Seal-2651bd5d756e43ee
 
 + Akira在日文里常见的意思是光明。
 + 实际上，汉字“郷”在作为名字使用时，也念做Akira，而在中文世界里，故乡常常被称作灵魂安放之所。
-+ 另外，还有大友克洋的名作《阿基拉》，是赛博文化的里程碑作品。与加密文化之间的想象空间也非常广阔。
 
 ## History
 
