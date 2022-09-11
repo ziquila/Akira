@@ -13,7 +13,7 @@ https://www.notion.so/greenpillcn/Community-SBT-Basket-and-Seal-2651bd5d756e43ee
 
 + 本产品会采用Seed Group积分方式招募产品、研发、设计、运营和任何需要的小伙伴！
 
-## Akira: A bright place to put your soul. 一个安放灵魂的光明之所。
+## Akira: Bond your soul to light.
 
 + Akira在日文里常见的意思是光明。
 + 实际上，汉字“郷”在作为名字使用时，也念做Akira，而在中文世界里，故乡常常被称作灵魂安放之所。
